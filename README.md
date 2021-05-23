@@ -1,2 +1,2 @@
-o20213071 JangMinWoo
+20213071 JangMinWoo
 Kookmin Univ. SW
