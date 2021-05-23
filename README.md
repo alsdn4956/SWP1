@@ -1,2 +1,2 @@
 20213071 JangMinWoo
-Kookmin Univ. SW
+Kookmin Univ. SW dept.
